@@ -7,3 +7,6 @@ addition treat Turing as a career.
   2.) Pre reading / note taking / studying before each class.
 
   Mark Cawthray was great to work with in the break off groups!
+
+  This is thought one
+  This is thought two
